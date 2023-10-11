@@ -1,5 +1,6 @@
 ### Bem vindos ao meu perfil meus amores!!!
 
+Meu nome é Juliana Leczinski
 <!--
 **leczinskijuliana2006/leczinskijuliana2006** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
