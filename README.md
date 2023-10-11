@@ -10,6 +10,8 @@ Meu nome é Juliana Leczinski
 
 
 ### Você entrar em contato comigo
+! (https://media.tenor.com/11fL2usheFwAAAAC/estudiando-burbuja.gif)
 
 juliana.chinaider@escola.pr.gov.br
+
 @leczinski_04
