@@ -6,5 +6,7 @@
 -Estou me desenvolvendo na linguanm JavaScrit;
 
 
-**leczinskijuliana2006/leczinskijuliana2006** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### Você entrar em contato comigo
 
+juliana.chinaider@escola.pr.gov.br
+@leczinski_04
