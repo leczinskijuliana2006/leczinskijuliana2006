@@ -11,7 +11,7 @@ Meu nome é Juliana Leczinski
 -Utilizo ese epaço para minha organização e compartilhamento o meu projetos dnvolvios;
 
 
-### Você entrar em contato comigo
+### Você pode entrar em contato comigo
 
 ![](https://media.tenor.com/11fL2usheFwAAAAC/estudiando-burbuja.gif)
 
